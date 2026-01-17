@@ -1,0 +1,1 @@
+many, much, sure, both, all, real, true, long, short, open, close, near, big, large, huge, small, easy, deep, low, fine, poor, difficult, difficulty, popular, quickly, wrong, foot, even, animal, wife, husband, sport, quite, think, change, move, movement, take, give, bring

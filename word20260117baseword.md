@@ -1,0 +1,1 @@
+find, know, show, put, set, try, make, meet, build, provide, include, value, laugh, heart, bank, say, tell, call, ask, talk, read, speak, speech, state, statement, voice, sound, mention, discuss, comment, express, explain, debate, argue, argument, conversation, question, answer, introduce, suggest

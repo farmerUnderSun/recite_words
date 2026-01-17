@@ -1,0 +1,1 @@
+time, tomorrow, month, ahead, afternoon, spring, before, come, now, period, year, sound, evening, summer, during, use, then, date, decade, minute, night, fall, daily, way, today, day, century, hour, weekend, winter, clock, most, yesterday, week, next, morning, season, after, late, right

@@ -1,0 +1,1 @@
+begin, start, end, great, help, world, buy, hope, body, few, little, member, age, hard, story, stop, letter, class, develop, food, win, wait, law, strong, different, name, economy, land, road, middle, without, within, direction, again, kid, benefit, space, listen, important, beautiful
