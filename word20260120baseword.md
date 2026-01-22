@@ -1,0 +1,1 @@
+wide, see, look, watch, visit, view, review, interview, notice, note, seek, search, research, run, stand, sit, seat, walk, drive, step, enter, dance, turn, follow, stay, leave, seem, become, remain, hotel, club, ready, tax, television, contact, contract, address, financial, necessary, dream
