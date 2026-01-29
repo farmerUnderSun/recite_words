@@ -1,0 +1,1 @@
+hand, write, hold, opinion, reach, receive, carry, describe, mark, draw, sign, paint, plant, press, pressure, pull, push, catch, play, fight, touch, throw, place, replace, strike, serve, order, offer, send, pick, goal, oil, restaurant, face, sense, die, dead, death, live, life
