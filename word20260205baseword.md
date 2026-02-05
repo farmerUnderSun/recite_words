@@ -1,0 +1,1 @@
+mean, mind, memory, miss, forget, remember, believe, agree, agreement, worry, consern, care, decide, decision, understand, doubt, wonder, imagine, assume, expect, guess, consider, idea, garden, sea, smile, more, get, study, learn, teach, test, education, issue, report, paper, article, course, term, major

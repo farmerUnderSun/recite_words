@@ -1,0 +1,1 @@
+information, break, holiday, college, university, book, page, author, staff, president, human, race, people, person, personal, individual, Internet, robot, communication, born, aspect, work, job, career, firm, company, industry, office, officer, official, manage, management, board, position, employ, leader, nation, national, international, country
