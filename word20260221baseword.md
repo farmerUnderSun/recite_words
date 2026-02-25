@@ -1,0 +1,1 @@
+sale, sell, shop, store, system, program, point, case, keep, business, market, plan, result, service, pay, cost, spend, price, free, rate, account, amount, trade, own, agent, agency, base, basic, hug, generous, wisdom, goods, feedback, airport, seldom, flaw, shortage, intelligent, fact, factor

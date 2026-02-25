@@ -1,0 +1,1 @@
+pretty, nice, weight, figure, shape, health, model, behavior, site, size, image, picture, fun, disease, doctor, patient, hospital, serious, kill, save, effort, fire, line, drug, treat, treatment, strategy, standard, solution, heaven, headline, investment, well-known, tide, evidence, prove, support, capital, gradual, eager

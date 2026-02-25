@@ -1,0 +1,1 @@
+happen, appear, occur, lack, enough, compare, improve, focus, involve, link, matter, fake, bonus, worth, worthy, grow, growth, worldwide, home, house, room, door, wall, window, floor, ground, key, table, department, dollar, degree, gain, earn, credit, bill, mile, income, profit, train, station
