@@ -1,0 +1,1 @@
+normal, average, common, traditional, immediately, recently, previous, current, moment, present, represent, suddenly, continue, modern, series, sort, variety, various, version, type, style, tent, range, piece, original, campus, blank, battery, underground, subway, setback, seize, caution, risk, challenge, problem, trouble, skill, technology, science

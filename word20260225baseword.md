@@ -1,0 +1,1 @@
+history, goverment, policy, political, war, event, main, join, act, action, art, air, vote, stage, attention, election, fund, measure, attack, foreign, language, campaign, hit, fit, fix, sole, direct, director, lose, loss, trip, travel, enjoy, single, couple, perform, performance, chance, opportunity, prepare

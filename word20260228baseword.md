@@ -1,0 +1,1 @@
+full, fill, feel, lead, general, rest, clean, fly, fast, hungry, center, side, light, protect, significant, source, resource, energy, damage, dark, suffer, field, response, responsibility, power, force, exercise, practice, function, extend, maintain, contain, associate, generation, nature, natural, favorable, professional, knowledge, material
