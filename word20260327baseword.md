@@ -1,0 +1,1 @@
+celebrate, tour, tourist, journey, camp, transport, weather, plane, map, equipment, lake, row, mountain, climb, roll, island, beach, pool, crowd, alternative, historical, museum, exhibition, empty, rare, theater, expensive, comfortable, accident, flight, vacation, outdoor, cinema, bicycle, scenery, advance, advantage, approach, method, aim

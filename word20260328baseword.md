@@ -1,0 +1,1 @@
+federal, violence, army, conflict, enemy, critical, soldier, weapon, approve, institution, defense, protest, politics, resident, citizen, forbid, treasure, fundamental, construct, construction, global, exchange, scale, commercial, import, advertise, advertisement, investor, consumer, cash, crisis, shake, recover, practical, sharp, target, purpose, realize, achieve, attempt

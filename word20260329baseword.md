@@ -1,0 +1,1 @@
+corporation, executive, chief, register, locate, domestic, abroad, sum, assess, reject, hire, talent, active, salary, wage, qualify, competitive, appropriate, slogan, rumor, require, demand, control, operate, operation, organize, process, establish, release, track, theory, accept, allow, apply, application, check, condition, situation, conclusion, judge

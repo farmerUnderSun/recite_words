@@ -1,0 +1,1 @@
+screen, list, news, newspaper, task, project, favorite, prefer, cover, discover, create, design, define, fear, encourage, return, depend, cheer, post, positive, promise, legal, expect, exist, reason, recognize, reflect, record, attend, supply, surprise, machine, magazine, feature, character, energetic, electric, analyze, analysis, harmony
