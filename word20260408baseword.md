@@ -1,0 +1,1 @@
+healthy, physical, mental, busy, schedule, arrange, regular, habit, suit, suitable, strength, brain, diet, freedom, kick, coach, football, tennis, jump, nurse, disappear, sick, ill, illness, cancer, medical, medicine, fever, wrist, jog, jaw, mass, massive, concert, audience, tragedy, thanksgiving, eve, origin, originally

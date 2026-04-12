@@ -1,0 +1,1 @@
+landscape, coast, channel, forest, native, border, attract, attractive, visitor, distance, route, vehicle, spot, excite, wonderful, fashion, photograph, occasion, expand, annual, extra, expense, satisfy, brand, label, count, afford, discount, gift, pack, package, distribute, delivery, awake, amuse, vocal, camera, entry, exit, band

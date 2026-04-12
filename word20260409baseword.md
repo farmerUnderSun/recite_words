@@ -1,0 +1,1 @@
+ticket, display, motion, emotion, expression, delight, angry, disappoint, drama, scene, plot, cultural, religion, religious, tradition, ancient, classic, folk, educate, lesson, grade, union, association, volunteer, mobile, tool, tip, acquire, notion, definition, concentrate, collect, collection, background, academic, introduction, master, graduate, clever, dictionary

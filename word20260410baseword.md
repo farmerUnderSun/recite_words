@@ -1,0 +1,1 @@
+text, content, context, title, sentence, core, theme, topic, spirit, outline, passage, divide, description, illustrate, comparison, emphasize, importance, attach, quote, perspective, conclude, suggestion, crucial, element, diary, failure, block, stress, encounter, cope, handle, settle, solve, resolve, resolution, afraid, abandon, belief, impossible, confidence

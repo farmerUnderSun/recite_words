@@ -1,0 +1,1 @@
+independent, guide, instruction, complex, tough, terrible, error, mistake, fault, struggle, confuse, blame, escape, excuse, complain, complaint, complicated, faith, beat, weak, powerful, enhance, compete, capable, efficient, constant, corner, select, selection, equal, hobby, defeat, stick, pursue, perfect, yield, outcome, succeed, victory, famous
