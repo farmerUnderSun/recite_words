@@ -1,0 +1,1 @@
+childhood, youth, marriage, senior, cycle, colleague, fellow, partner, entire, admit, acknowledge, valuable, temporary, permanent, taste, heavy, remove, comfort, differ, vary, status, convince, ordinary, unique, lucky, desire, bright, prospect, peak, promote, temper, forgive, elder, print, participate, participant, assistant, aid, shy, polite

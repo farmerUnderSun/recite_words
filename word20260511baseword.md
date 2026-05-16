@@ -1,0 +1,1 @@
+chart, percentage, proportion, trend, decline, decrease, reduction, speed, sudden, emergency, crash, signal, rush, injury, hurt, dangerous, shock, threat, threaten, safety, secure, battle, capture, peace, insist, severe, predict, announce, intend, launch, remark, breathe, swing, hang, examine, acute, terrify, length, extent, repeat

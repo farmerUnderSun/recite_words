@@ -1,0 +1,1 @@
+bond, relevant, relative, neightbor, neighborhood, passenger, connect, connection, familiar, bother, strange, refuse, reaction, gather, communicate, accompany, surround, bottom, spread, circle, truly, gossip, fond, disgust, absence, presence, award, reward, ought, command, concept, favor, capacity, sight, vision, excellent, actual, ideal, hall, library

@@ -1,0 +1,1 @@
+critic, literature, category, novel, frame, chapter, brief, emotional, atmosphere, overall, variable, phase, combine, shift, surface, reality, straight, arise, existence, emerge, appearance, characteristic, identity, distinguish, odd, warn, initial, gene, reasonable, honor, retire, install, metal, repair, mechanism, collapse, split, storm, shut, lock
